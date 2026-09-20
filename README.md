@@ -1,4 +1,4 @@
-# Hi, I'm Alex Valderrama 👋
+# Hi, I'm Alex Valderrama 👾
 
 **Growth Team Lead Iberia & LATAM @ LINK Mobility** | Technical Computer Engineer  
 📍 Madrid, Spain
